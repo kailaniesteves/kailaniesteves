@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello! I`m Kailani, nice to meet you :) 
 
 <!--
 **kailaniesteves/kailaniesteves** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
